@@ -1,5 +1,4 @@
-[信成的博客](https://xincheng213618.cn/)
+[信成的博客](https://xincheng213618.com/)
 
 xincheng213618@gmail.com
-计算机
-哲学、经济学、心理学爱好者。
+一个爱好看片的人
